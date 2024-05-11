@@ -9,13 +9,14 @@ Soy estudiante de ingenieria mecatronica en la ucb cede tarija🪛⚙️
 
 ## Caracteristicas profecionales
 se trabajar bajo presion, tengo un buen manejo de trabajo en equipo, puntual, diciplinada y gran tolerancia al estres 
+soy autodidacta, tengo conocimientos en robotica y programacion, me apasiona aprender cosas nuevas y no le tengo miedo a los retos 
 
 
 
 
 
-
-
+## HASTA QUE NO HAGAS CONSCIENTE EL INCONSCIENTE, SEGUIRA MANEJANDO TU VIDA Y TU LO LLAMARAS DESTINO
+-Carl Jung
 
 
 
