@@ -12,7 +12,8 @@ se trabajar bajo presion, tengo un buen manejo de trabajo en equipo, puntual, di
 soy autodidacta, tengo conocimientos en robotica y programacion, me apasiona aprender cosas nuevas y no le tengo miedo a los retos 
 
 
-
+TRABAJOS PROPIOS 
+https://github.com/NataliaUrzagaste/trabajos-propios/tree/main
 
 
 ## HASTA QUE NO HAGAS CONSCIENTE EL INCONSCIENTE, SEGUIRA MANEJANDO TU VIDA Y TU LO LLAMARAS DESTINO
